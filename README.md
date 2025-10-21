@@ -88,6 +88,6 @@ Join, thousands of satisfied users who have made CureConnect their preferred hea
 
 ---
 
-© 2025 CureConnect. All rights reserved.
+© 2025 CureConnect. All rights reserved..
 
 
